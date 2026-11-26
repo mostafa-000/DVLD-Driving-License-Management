@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  🎥 <b>https://lnkd.in/p/e9dpDtAe</b> (<a href="#">Video Link</a>)
+🎥 <b>Demo Video:</b> <a href="https://lnkd.in/p/e9dpDtAe">Watch on LinkedIn</a>
 </p>
 
 ---
