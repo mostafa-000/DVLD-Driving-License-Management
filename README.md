@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  🎥 <b>رابط الفيديو:</b> (<a href="#">Video Link</a>)
+  🎥 <b>https://lnkd.in/p/e9dpDtAe</b> (<a href="#">Video Link</a>)
 </p>
 
 ---
